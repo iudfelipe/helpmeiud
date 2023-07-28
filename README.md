@@ -1,3 +1,3 @@
 # helpmeiud
 
-Video explicativo ()[]
+Link: [Video explicativo](https://youtu.be/yEIyDVVK8io)
